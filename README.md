@@ -1,1 +1,1 @@
-# biduit
+bhadrak college bhadrak
